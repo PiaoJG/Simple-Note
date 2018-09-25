@@ -1,0 +1,2 @@
+# Simple-Note
+[Product introduction] The Simple note is a professional life accounting software Minimalist operation process makes it easy for you to get started Bookkeeping in three seconds, speed experience  [Product Features] Three-second bookkeeping: a minimalist process that allows you to complete a note-taking operation in 3 seconds Consumer trends: a clear-cut chart to help you quickly analyze consumption
